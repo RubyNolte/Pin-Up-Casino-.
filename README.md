@@ -2,7 +2,7 @@
 
 Pin-Up Casino Honduras: Disfruta de una experiencia de juego en línea con promociones exclusivas
 
-Pin-Up Casino Honduras se ha consolidado como un destino destacado para los entusiastas de los juegos en línea, ofreciendo una amplia variedad de juegos y promociones atractivas. Una de sus características más destacadas es el Pin-Up casino bono, que proporciona a los nuevos jugadores un generoso bono de bienvenida para comenzar su experiencia de juego.
+Pin-Up Casino Honduras se ha consolidado como un destino destacado para los entusiastas de los juegos en línea, ofreciendo una amplia variedad de juegos y promociones atractivas. Una de sus características más destacadas es el <a href=https://casinopinup.hn/promo>Pin-Up casino bono</a> que proporciona a los nuevos jugadores un generoso bono de bienvenida para comenzar su experiencia de juego.
 
 Bono de Bienvenida: Un Comienzo Generoso
 
